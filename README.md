@@ -1,0 +1,2 @@
+# Candle-stick
+holding ideas
